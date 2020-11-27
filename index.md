@@ -1,3 +1,5 @@
-# Welcome to my blog
+# Shalom aleychem!
 
-I'm glad you are here. I plan to talk about ...
+Do, or not do. There is no try!
+
+
